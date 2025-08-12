@@ -4,13 +4,14 @@
         <b>19, he/him</b><br>
            usual artist, occasional editor & writer<br>
 </body>
-   <br>     
+        
 <p align="center">✶⋆.˚꩜ .ᐟ˙⋆✶<br>
 
 <body>
 <p align="center"><body>
            <b>byi<i>!!</i></b><br>
-           feel free to interact !! i dont bite !!<br>
            im not strict when it comes to interaction, <b>just dont be weird</b><br>
            basic dni, proshippers & bigots stay 100 ft away from me you WILL be striken down<br>
 </body>
+
+<p align="center"><img src="https://gifcity.carrd.co/assets/images/gallery49/e802b9ad.gif?v=e3c0bc0f">
