@@ -2,7 +2,7 @@
 
 <p align="center"><body>
         <b>19, he/him</b><br>
-           usual artist, occational editor & writer<br>
+           usual artist, occasional editor & writer<br>
 </body>
    <br>     
 <p align="center">✶⋆.˚꩜ .ᐟ˙⋆✶<br>
