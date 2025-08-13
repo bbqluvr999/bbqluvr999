@@ -1,7 +1,7 @@
 <p align="center"><img src="https://i.imgur.com/3ljFuuN_d.webp?maxwidth=760&fidelity=grand"></center><br>
 
 <p align="center"><body>
-        <b>19, he/him</b><br>
+        <b>19, he/him 🇲🇽🇺🇸</b><br>
            usual artist, occasional editor & writer<br>
 </body>
         
@@ -10,7 +10,8 @@
 <body>
 <p align="center"><body>
            <b>byi<i>!!</i></b><br>
-           im not strict when it comes to interaction, <b>just dont be weird</b><br>
+           c+h okay !!!<br>
+           im not strict when it comes to interaction, <i><b>just dont be weird</b></i><br>
            basic dni, proshippers & bigots stay 100 ft away from me you WILL be striken down<br>
 </body>
 
