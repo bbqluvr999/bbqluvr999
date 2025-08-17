@@ -15,4 +15,8 @@
            basic dni, proshippers & bigots stay 100 ft away from me you WILL be striken down<br>
 </body>
 
-<p align="center"><img src="https://gifcity.carrd.co/assets/images/gallery49/e802b9ad.gif?v=e3c0bc0f">
+<p align="center"><img src="https://gifcity.carrd.co/assets/images/gallery49/e802b9ad.gif?v=e3c0bc0f"><br>
+
+
+<p align="center"><a href="https://discord.gg/KpT7crZyUe">my hsr/wuwa server</a>
+
