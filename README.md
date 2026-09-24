@@ -1,8 +1,9 @@
 <p align="center"><img src="https://i.imgur.com/3ljFuuN_d.webp?maxwidth=760&fidelity=grand"></center><br>
 
 <p align="center"><body>
-        <b>19, he/him 🇲🇽🇺🇸</b><br>
+        <b>20, he/him 🇲🇽🇺🇸</b><br>
            usual artist, occasional editor & writer<br>
+        WUWA AND RWBY FANS PLS INT!!!!<br)
 </body>
         
 <p align="center">✶⋆.˚꩜ .ᐟ˙⋆✶<br>
