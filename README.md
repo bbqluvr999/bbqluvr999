@@ -3,7 +3,8 @@
 <p align="center"><body>
         <b>20, he/him 🇲🇽🇺🇸</b><br>
            usual artist, occasional editor & writer<br>
-        WUWA AND RWBY FANS PLS INT!!!!<br)
+        JOJO, WUWA AND RWBY FANS PLS INT!!!!<br>
+        im usually chillin with friends, or in the jojo and gacha game areas if ya wanna find me!!<br>
 </body>
         
 <p align="center">✶⋆.˚꩜ .ᐟ˙⋆✶<br>
