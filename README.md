@@ -1,4 +1,4 @@
-<p align="center"><img src="https://i.imgur.com/3ljFuuN_d.webp?maxwidth=760&fidelity=grand"></center><br>
+<p align="center"><img src="https://i.postimg.cc/T32qmknq/IMG-4628.jpg"></center><br>
 
 <p align="center"><body>
         <b>20, he/him 🇲🇽🇺🇸</b><br>
