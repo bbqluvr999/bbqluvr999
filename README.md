@@ -12,6 +12,7 @@
 <body>
 <p align="center"><body>
            <b>byi<i>!!</i></b><br>
+           i tend to be awkward sometimes, so i apologize before hand<br>
            c+h okay !!!<br>
            im not strict when it comes to interaction, <i><b>just dont be weird</b></i><br>
            basic dni, proshippers & bigots stay 100 ft away from me you WILL be striken down<br>
